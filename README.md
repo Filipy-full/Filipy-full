@@ -11,7 +11,7 @@
 - **Nombre:** Filipy Henrique Rodrigues Marques
 - **Nacionalidad:** 🇧🇷 Brasil
 - **Instituto:** Institut Tecnologic de Barcelona (ITB)
-- **Correo electrónico:** [filipy.rodrigues.7e8@itb.cat](mailto:filipy.rodrigues.7e8@itb.cat)
+- **Correo electrónico:** [filipyhenrique54@gmail.com](mailto:filipyhenrique54@gmail.com)
 
 ---
 
